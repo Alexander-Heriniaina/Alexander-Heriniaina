@@ -14,10 +14,8 @@ Salut ! Je suis Dra HERINIAINA Alexander, un designer enthousiaste avec 2 ans d'
 Je suis fier de faire partie de l'équipe talentueuse chez Kasia, une entreprise innovante où nous repoussons les limites du design pour créer des expériences incroyables. Notre passion pour le design se reflète dans chaque projet que nous entreprenons.
 
 🌟 Mon objectif :
-Mon objectif ultime est de donner vie à des idées créatives et de résoudre des problèmes de manière esthétique et fonctionnelle. Je suis toujours ouvert à de nouvelles opportunités passionnantes de collaboration, alors n'hésitez pas à me contacter !
+Mon objectif ultime est de donner vie à des idées créatives et de résoudre des problèmes de manière esthétique et fonctionnelle. Je suis toujours ouvert à de nouvelles opportunités passionnantes de collaboration.
 
-🌐 Pour en savoir plus :
-Visitez mon portfolio pour découvrir mes travaux récents et suivre mon parcours de conception. Je suis également ouvert aux discussions sur le design, les projets collaboratifs et l'exploration de nouvelles idées. Faisons connaissance !
 
 📧 Contactez-moi :
 📩 Email : [a.heriniaina@kasia.mg]
